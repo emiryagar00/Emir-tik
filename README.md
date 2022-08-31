@@ -1,0 +1,2 @@
+# Emir-tik
+Mavi tik
